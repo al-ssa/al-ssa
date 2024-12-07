@@ -1,0 +1,5 @@
+- Hi, I’m Alessa
+- I’m currently learning HTML JS CSS
+- I’m working on my fnaf fanmade game
+- Pronouns: She/Her
+- I play dbd and love FNAF
